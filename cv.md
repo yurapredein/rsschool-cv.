@@ -13,7 +13,7 @@
 **Contact information:**
 
 
-**Phone:** +375 29 1764080
+**Phone:** +375 29 176 40 80
 
 
 **E-mail:** y.predein@gmail.com
