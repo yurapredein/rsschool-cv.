@@ -4,7 +4,7 @@
 ## **Junior Frontend Developer**
 
 
-**Location:** Minsk, Belarus
+**Location:** Minsk, Belarus 
 
 
 ---
